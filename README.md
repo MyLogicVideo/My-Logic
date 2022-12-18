@@ -6,7 +6,6 @@ The primary reason people enroll in professional courses is to secure a well-pay
 The Certified Management Accountant is among the most respected certifications offered by IMA in Management Accounting. US CMA also involves high ethical and professional standards, making it the gold standard in financial planning. 
 
 As a result, CMA USA is not restricted to a particular region or country. Earning the CMA USA certification can help finance and accounting professionals gain a competitive edge in the market and enhance their credibility as well as be a worthwhile addition to a resume and improve their career prospects.
-
 -US CMA: Why should you pursue it?: 
  As we consider this matter, we must keep in mind the following aspects, since they are crucial for deciding whether to obtain this certification:
 -	**What is required to qualify  ? :**
