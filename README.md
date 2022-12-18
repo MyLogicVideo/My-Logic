@@ -18,3 +18,6 @@ CMA USA certification requirements require a comprehensive understanding and kno
 As the Middle East expands its economy beyond oil, there are a number of sectors that currently have a lot of money flowing into them. For these reasons, it needs financial managers, auditors, and more because of the global nature of the business. CMAs can offer a great deal of value to these organizations by helping them make the right financial decisions that will help them grow and increase profits.
 Conclusion
 With a large presence in the Middle East such as the UAE, Dubai, Bahrain, and Qatar, CMA USA attracts talent from around the world and utilizes it in their business. As a result, individuals working in the Middle East who wish to further their careers and upgrade their skill set in finance and accounting can benefit from obtaining a US CMA, both financially and professionally. CMA USA course details are available at Mylogic Bangalore to help you reach your dreams of living abroad! Click here at mylogicvideos.com to learn more!
+![WhatsApp Image 2022-12-03 at 1 49 37 PM](https://user-images.githubusercontent.com/120785273/208277031-a7115b67-2452-4f16-8cbc-f5e7d6e7da2a.jpeg)
+![WhatsApp Image 2022-12-09 at 3 51 49 PM](https://user-images.githubusercontent.com/120785273/208277042-407275d1-51d0-45a1-8e71-c3334c123b91.jpeg)
+
