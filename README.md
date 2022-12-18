@@ -1,5 +1,5 @@
 # My-Logic
-**A guide to becoming a CMA USA member in the middle  eastregions**
+**A guide to becoming a [CMA USA](https://www.mylogicvideos.com/CMA-USA) member in the middle  eastregions**
 The primary reason people enroll in professional courses is to secure a well-paying and secure job with a reputable domestic or international company. Professional courses may even be taken by some to pursue promotions within their current company, to grab international mandates, or to relocate to a country with a higher-paying job with benefits available only outside India. The right certification from anywhere should be able to impact the career development of a recent graduate and an individual already in the workforce.
 The Certified Management Accountant is among the most respected certifications offered by IMA in Management Accounting. US CMA also involves high ethical and professional standards, making it the gold standard in financial planning. 
 As a result, CMA USA is not restricted to a particular region or country. Earning the CMA USA certification can help finance and accounting professionals gain a competitive edge in the market and enhance their credibility as well as be a worthwhile addition to a resume and improve their career prospects.
