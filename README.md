@@ -21,5 +21,5 @@ With a large presence in the Middle East such as the UAE, Dubai, Bahrain, and Qa
 ![WhatsApp Image 2022-12-03 at 1 49 37 PM](https://user-images.githubusercontent.com/120785273/208277031-a7115b67-2452-4f16-8cbc-f5e7d6e7da2a.jpeg)
 ![WhatsApp Image 2022-12-09 at 3 51 49 PM](https://user-images.githubusercontent.com/120785273/208277042-407275d1-51d0-45a1-8e71-c3334c123b91.jpeg)
 
-*Invest in your future today at Mylogic, and pave a new path for your bright future.
+**Invest in your future today at Mylogic, and pave a new path for your bright future.
 Visit our website at www.mylogicvideos.com for more details and we can be reached at :+91 8800336720.**
